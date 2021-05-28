@@ -1,1 +1,0 @@
-# naiyapatel.github.io
